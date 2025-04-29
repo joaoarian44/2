@@ -1,5 +1,6 @@
 # 2 Meu nome e joao adrian 
-Sou aluno o 1 ensino medio
+Sou aluno d
+o 1 ensino medio
 Estudo no colegio Antonio dorigon 
 Gosto muito de jogar bola, e jogos mobile 
 
